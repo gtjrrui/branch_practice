@@ -11,3 +11,5 @@ These are a few of my favorite things:
 - Food
 - Games
 - Freedom
+- Easy classes
+- Nice stuff
